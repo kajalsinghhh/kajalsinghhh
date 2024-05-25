@@ -1,5 +1,5 @@
 
-![logo](https://github.com/kajalsinghhh/kajalsinghhh/blob/main/Purple%20Modern%20Gaming%20Youtube%20Banner.png)
+![logo](https://github.com/kajalsinghhh/kajalsinghhh/blob/main/Blue%20And%20Red%20Futuristic%20Game%20YouTube%20Channel%20Art.png)
 
 
 
